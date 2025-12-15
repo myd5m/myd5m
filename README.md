@@ -1,5 +1,5 @@
 # 💫 About Me:
-Work on FiveM (Not CFX Affiliated)<br><br>Actually i work with : <br><br>vMap Other Secret Project..<br><br>CarterTechnical@outlook.fr (For professional content only)
+Work on FiveM (Not CFX Affiliated)<br><br>CarterTechnical@outlook.fr (For professional content only)
 
 
 ## 🌐 Socials:
