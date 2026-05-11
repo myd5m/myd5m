@@ -3,8 +3,6 @@
 # Hi there, I'm **Myd** 👋  
 **I'm a fullstack developer, learning more everyday**
 
-![Profile views](https://komarev.com/ghpvc/?username=myd5m&color=0e75b6&style=flat)
-
 </div>
 
 ---
